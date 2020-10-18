@@ -1,1 +1,1 @@
-this code was written by the greatest Parth Pant
+This code was written by The Greatest Parth Pant.
